@@ -2,9 +2,7 @@
   <img src=https://i.pinimg.com/736x/77/5e/d7/775ed74120f44c9640e39668f7410ba9.jpg>
 </p>
 
-<p align="center">
 ![](https://komarev.com/ghpvc/?username=03-zero&color=da96ff&style=flat&label=trespassers)
-</p>
 
 <p align="center">
   <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/d99f683e-b226-4ed9-9922-5e94fb70fdd6/dkwd95f-545e7472-0417-4faf-bd78-40106d4e1a08.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9kOTlmNjgzZS1iMjI2LTRlZDktOTkyMi01ZTk0ZmI3MGZkZDYvZGt3ZDk1Zi01NDVlNzQ3Mi0wNDE3LTRmYWYtYmQ3OC00MDEwNmQ0ZTFhMDgucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.ZH3Vtjb7ld56Tw9Gf2kEz5Zk71IBxWYqmVqh9yEjdVE">
