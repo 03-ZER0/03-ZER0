@@ -26,7 +26,7 @@ oouuu he's so stupid i hate Zero
 </p>
 
 <p align="center">
-  <img src="https://i.imgur.com/hMmZgSN.png">
+  <img src="https://i.postimg.cc/pdn38c1Z/border-1.png">
 </p>
 
 <p align="center">: <strong>Silver</strong><strong> / </strong>Zero :
@@ -45,7 +45,7 @@ oouuu he's so stupid i hate Zero
 </p>
 
 <p align="center">
-  <img src="https://i.imgur.com/bq33N7D.png">
+  <img src="https://i.postimg.cc/BnCBzTP0/border-2.png">
 </p>
 
 <p align="center">
