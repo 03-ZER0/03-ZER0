@@ -50,7 +50,7 @@ oouuu he's so stupid i hate Zero
 
 <div align="center">
   
-  ![](https://komarev.com/ghpvc/?username=03-zero&color=da96ff&style=flat&label=✦+trespassers)
+  ![](https://komarev.com/ghpvc/?username=03-zero&color=da96ff&style=flat&label=✦+Trespassers..)
 
 <p align="center">
   <img src="https://i.imgur.com/Od6BCXr.gif">
