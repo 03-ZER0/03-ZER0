@@ -59,7 +59,7 @@ oouuu he's so stupid i hate Zero
 
 <div class="container">
   <p align="center">
-  <img src="https://i.imgur.com/er0UJYh.png" >
-  <img src="https://i.imgur.com/mEQfDks.png" class="fa fa-bounce" width="200">
+  <img src="https://i.imgur.com/er0UJYh.png">
+  <img src="https://i.imgur.com/mEQfDks.png">
 </p>
 </div>
