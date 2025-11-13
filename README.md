@@ -29,7 +29,7 @@ oouuu he's so stupid i hate Zero
   <img src="https://i.imgur.com/hMmZgSN.png">
 </p>
 
-<p align="center">: Silver<strong> / </strong>Zero :
+<p align="center">: <strong>Silver</strong><strong> / </strong>Zero :
 </p>
 
 <p align="center">: I'm <strong>19</strong> :
