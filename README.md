@@ -24,7 +24,11 @@
 <p align="center">
   <img src="https://i.imgur.com/feAEMIS.png">
 </p>
-  
+
+<p align="center">
+oouuu he's so stupid i hate Zero
+</p>
+
 <p align="center">
   <img src="https://i.imgur.com/hMmZgSN.png">
 </p>
