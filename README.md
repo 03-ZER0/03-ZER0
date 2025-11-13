@@ -22,7 +22,7 @@
 </p>
 
 <p align="center">
-oouuu he's so stupid i hate Zero
+oouuu he's so stupid i hate Zero, but my oc's pronouns are he/they btw
 </p>
 
 <p align="center">
