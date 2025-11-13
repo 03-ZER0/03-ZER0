@@ -32,7 +32,7 @@ oouuu he's so stupid i hate Zero
 <p align="center">: Silver<strong> / </strong>Zero :
 </p>
 
-<p align="center">: I'm <strong>18+</strong> :
+<p align="center">: I'm <strong>19</strong> :
 </p>
 
 <p align="center">: She/<strong>They</strong> :
