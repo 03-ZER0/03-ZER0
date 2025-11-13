@@ -51,8 +51,3 @@ oouuu he's so stupid i hate Zero
 <p align="center">
   <img src="https://i.imgur.com/Od6BCXr.gif">
 </p>
-
-<p align="center">
-  <img src="https://i.imgur.com/er0UJYh.png">
-</p>
-
