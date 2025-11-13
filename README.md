@@ -48,9 +48,9 @@ oouuu he's so stupid i hate Zero
   <img src="https://i.imgur.com/bq33N7D.png">
 </p>
 
-<div align="center">
-![](https://komarev.com/ghpvc/?username=03-zero&color=da96ff&style=flat&label=✦+trespassers)
-</div>
+<p align="center">
+  ![](https://komarev.com/ghpvc/?username=03-zero&color=da96ff&style=flat&label=✦+trespassers)
+</p>
 
 <p align="center">
   <img src="https://i.imgur.com/Od6BCXr.gif">
