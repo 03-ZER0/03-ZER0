@@ -1,9 +1,9 @@
 <p align="center">
-  <img src="https://i.imgur.com/Od6BCXr.gif">
+  <img src=https://i.pinimg.com/736x/77/5e/d7/775ed74120f44c9640e39668f7410ba9.jpg>
 </p>
 
 <p align="center">
-  <img src=https://i.pinimg.com/736x/77/5e/d7/775ed74120f44c9640e39668f7410ba9.jpg>
+  <img src="https://i.imgur.com/Od6BCXr.gif">
 </p>
 
 <p align="center">
