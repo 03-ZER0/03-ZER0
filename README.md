@@ -56,7 +56,3 @@ oouuu he's so stupid i hate Zero
   <img src="https://i.imgur.com/er0UJYh.png">
 </p>
 
-<p align="center">
-  <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5f87f1d0-3696-4cf6-b649-b640f5c33616/d9w3o8p-516f5f21-1ba4-4d80-9f7c-413eaa228e07.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi81Zjg3ZjFkMC0zNjk2LTRjZjYtYjY0OS1iNjQwZjVjMzM2MTYvZDl3M284cC01MTZmNWYyMS0xYmE0LTRkODAtOWY3Yy00MTNlYWEyMjhlMDcucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.4p-BlHAWM4ouH-ZQW7giTbLmpgkUB-n2k47cL3V43AY">
-</p>
-
