@@ -60,6 +60,6 @@ oouuu he's so stupid i hate Zero
 <div class="container">
   <p align="center">
   <img src="https://i.imgur.com/er0UJYh.png">
-  <img src="https://i.imgur.com/mEQfDks.png">
+  <img src="https://i.imgur.com/EzXGJkR.gif">
 </p>
 </div>
