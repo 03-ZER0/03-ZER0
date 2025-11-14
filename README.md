@@ -9,10 +9,6 @@
 </p>
 
 <p align="center">
-  ╰〡: [ <a href="https://characterhub.com/character/zer0-mKWh6FuD?v=1">Character Hub!</a> ] : &lt;
-</p>
-
-<p align="center">
   <a href=https://characterhub.com/character/zer0-mKWh6FuD?v=1><img src="https://i.postimg.cc/nzk4x4Tf/button-3.png" title=oouuu></a>
 </p>
   
