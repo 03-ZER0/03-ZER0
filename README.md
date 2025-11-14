@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-  <a href=https://characterhub.com/character/zer0-mKWh6FuD?v=1><img src="https://i.postimg.cc/NLqs77Nx/button-new-1.png" title=oouuu><a href=https://zerostinky.atabook.org/><img src="https://i.postimg.cc/7L6NygVF/new-button-2.png" title=talk.></a>
+  <a href=https://characterhub.com/character/zer0-mKWh6FuD?v=1><img src="https://i.postimg.cc/NLqs77Nx/button-new-1.png" title=oouuu><a href=https://zerostinky.atabook.org/><img src="https://i.postimg.cc/m2cKHLX9/button-2-again.png" title=talk.></a>
 </p>
   
 <p align="center">
