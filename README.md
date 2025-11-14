@@ -13,7 +13,7 @@
 </p>
 
 <p align="center">
-  <a href=https://characterhub.com/character/zer0-mKWh6FuD?v=1></a><img src="https://i.postimg.cc/nzk4x4Tf/button-3.png" title=oouuu>
+  <a href=https://characterhub.com/character/zer0-mKWh6FuD?v=1><img src="https://i.postimg.cc/nzk4x4Tf/button-3.png" title=oouuu></a>
 </p>
   
 <p align="center">
