@@ -13,6 +13,10 @@
 </p>
 
 <p align="center">
+  <img src="https://i.postimg.cc/tT6kHGPR/button-big-2.png" title=oouuu href=https://characterhub.com/character/zer0-mKWh6FuD?v=1>
+</p>
+  
+<p align="center">
   ─ Note: [ <em>I have some lore on my character, you can find it on the link :3</em> ]
 </p>
 
