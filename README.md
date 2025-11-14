@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-  <a href=https://characterhub.com/character/zer0-mKWh6FuD?v=1><img src="https://i.postimg.cc/4NWvKQ63/button-4.png" title=oouuu-character-hub></a>
+  <a href=https://characterhub.com/character/zer0-mKWh6FuD?v=1><img src="https://i.postimg.cc/4NWvKQ63/button-4.png" title=oouuu></a>
 </p>
   
 <p align="center">
