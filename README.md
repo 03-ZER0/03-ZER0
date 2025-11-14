@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.postimg.cc/sfLrfpt4/zero-banner-2.png" alt="BLEEEEEH">
+  <img src="https://i.postimg.cc/sfLrfpt4/zero-banner-2.png" title="BLEEEEEH">
 </p>
 
 <p align="center">
