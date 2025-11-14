@@ -2,10 +2,11 @@
   <img src="https://i.postimg.cc/sfLrfpt4/zero-banner-2.png" title="BLEEEEEH">
 </p>
 
+<p align="center">
   <img src="https://i.postimg.cc/NGP7qG0t/tiny-star-1.png">
   ㅤ. ✦ [ ʻ <em>You are lucky we have mercy.</em> ʼ ] ✦ .ㅤ
   <img src="https://i.postimg.cc/NGP7qG0t/tiny-star-1.png">
-
+</p>
 
   ╰〡: [ <a href="https://characterhub.com/character/zer0-mKWh6FuD?v=1">Character Hub!</a> ] : &lt;
 
