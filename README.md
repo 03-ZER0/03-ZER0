@@ -13,7 +13,7 @@
 </p>
   
 <p align="center">
-  ─ Note: [ <em>I have some lore on my character, you can find it on the link :3</em> ]
+  ─ Note: [ <em>I have some lore on my character, you can find it on character hub :3</em> ]
 </p>
 
 <p align="center">
