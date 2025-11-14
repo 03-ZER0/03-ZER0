@@ -17,7 +17,7 @@
 </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/9XNt5XfC/mini-1.png">
+  <img src="https://i.postimg.cc/9XNt5XfC/mini-1.png" title="meep">
 </p>
 
 <p align="center">
@@ -53,7 +53,7 @@ oouuu he's so stupid i hate Zero, but my oc's pronouns are he/they btw
 </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/qMhckfth/bouncing-wee.gif">
+  <img src="https://i.postimg.cc/qMhckfth/bouncing-wee.gif"title="weee!">
 </p>
 
 <div align="center">
