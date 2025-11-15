@@ -41,9 +41,7 @@ oouuu he's so stupid i hate Zero, but my oc's pronouns are he/they btw
 </p>
 
 <p align="center">
-:
-  <img src="https://i.postimg.cc/g2RNM7Rj/flag-2-(4).png" title="demigirl/lesbian">
-:
+  <img src="https://i.postimg.cc/jqLBbt75/flag-2-(3).png" title="demigirl/lesbian">
 </p>
 
 <p align="center">
