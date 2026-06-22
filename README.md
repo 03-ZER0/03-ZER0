@@ -25,7 +25,7 @@ oouuu he's so stupid i hate Zero, but my oc's pronouns are he/they btw
 </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/pdn38c1Z/border-1.png">
+  <img src="https://i.postimg.cc/sftfR3vG/Untitled315-20260622010359-1-1-50.png">
 </p>
 
 <p align="center">
@@ -49,7 +49,7 @@ oouuu he's so stupid i hate Zero, but my oc's pronouns are he/they btw
 </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/BnCBzTP0/border-2.png">
+  <img src="https://i.postimg.cc/kMkMd7Bt/Untitled315-20260622010348-1-1-50.png">
 </p>
 
 <p align="center">
